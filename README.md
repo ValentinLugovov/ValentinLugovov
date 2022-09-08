@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 - Telegram - @valentin_lugovov
 - E-mail - valentinlugovov@gmail.com
-- Phone - 7 991 678 59 03
+- Phone - 7 921 921 52 41
 
 <!---
 ValentinLugovov/ValentinLugovov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
